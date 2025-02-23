@@ -1,5 +1,3 @@
-# Extreme Ownership: How U.S. Navy SEALs Lead and Win - Mind Map
-
 ## Central Idea: Extreme Ownership - Leadership at Every Level
 
 ### 1. **Leadership Principles**
